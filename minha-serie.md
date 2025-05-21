@@ -52,7 +52,7 @@ Trailer Oficial da 2ª Temporada: [Assista Aqui](https://youtu.be/-m_DPp0Ht0o?si
 
 ## Por que você deve assistir
 
-Ruptura é uma série extremamente engajante com uma trama fechada, recheada de personagens interessantes e com propostas únicas, mas que possuem interações incríveis que apenas complementam cada personagem. A trama se aprofunda no conceito de dividir a mente do trabalho da mente pessoal, de uma forma que mostra muitos possíveis problemas que viriam junto caso essa tecnologia venha a existir, combinando a trama de ficção científica com um suspense único, podendo ter inúmeras interpretações do público.
+Ruptura é uma série extremamente engajante com uma trama fechada, recheada de personagens interessantes e com propostas únicas, mas que possuem interações incríveis que apenas complementam cada personagem. A trama se aprofunda no conceito de dividir a mente do trabalho da mente pessoal, de uma forma que mostra muitos possíveis problemas que viriam junto caso essa tecnologia viesse a existir, combinando a trama de ficção científica com um suspense único, podendo ter inúmeras interpretações do público.
 
 ## Notas do Autor 
 
