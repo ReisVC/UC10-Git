@@ -1,4 +1,4 @@
-#Severance
+# Severance
 
 Ruptura (Severance) gira em torno de um procedimento cirúrgico inovador feito por uma misteriosa corporação chamada Lumon Industries, que permite separar completamente as memórias pessoais e profissionais dos funcionários. Ou seja, quem está no trabalho não tem acesso a nenhuma lembrança da vida fora dali — e vice-versa. Essa separação cria duas versões da mesma pessoa: o "innie", que só vive no trabalho, e o "outie", que só vive fora dele.
 
